@@ -35,6 +35,7 @@ Con la masa que quede, cubre bien la causa limeña. Para el adorno, corta los hu
 ![Causa](https://i.ytimg.com/vi/sRz_29KDf8w/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLD-_zfLaG7SGYJmtIW6Lmy-_4GWzA)
 ## Link del tutorial
 - [Video tutorial de preparacion](https://www.youtube.com/watch?v=UbbSMZrosZk&t=44s/)
+- [RECETAS](https://alvaro270.github.io/causa_de_pollo/recetas)
 
 
 
